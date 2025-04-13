@@ -1,2 +1,1 @@
-Once upon a time, a robot and a wizard met in a coffee shop...
-"Hey," said the wizard, "Do you want to build a castle"
+Once upon a time, a robot and a wizard met in the library..
